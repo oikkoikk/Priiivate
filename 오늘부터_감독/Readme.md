@@ -11,4 +11,4 @@
 > 생각보다 많은 공간들이 또 다른 사람에게는 제3의 공간이 될 수 있음을 알려준다.
 
 
-유튜브 링크: <https://youtu.be/McBeYfKGQK4>
+유튜브 링크: <https://youtu.be/UHogkIIF2qA>
